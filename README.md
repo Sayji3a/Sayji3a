@@ -24,14 +24,12 @@ I'm a little shy around new people, so I don't usually make the first move... **
 
 (˶ᵔ ᵕ ᵔ˶)
 
-**But if you start the conversation, I promise I'll open up quickly and probably end up talking a lot!** ♡
-
 ♡ Please don't make me the target of gossip, humiliation, or jokes meant to insult me.
-Please avoid challenge pranks, se×jokes (unless we're actually close), disrespectful behavior, or bothering the people around me.
+Please avoid challenge pranks, se×jokes (unless we're actually close
 
 ♡ Thank you! ♡
 <p align="center">
-  <img src="./7af3d341fe2a8ad0399d23063b9ac6ee.gif" width="250">
+ <img src="./7af3d341fe2a8ad0399d23063b9ac6ee.gif" width="250">
 </p>
 </p>
 ⋆｡‧˚ʚ♡ɞ˚‧｡⋆
