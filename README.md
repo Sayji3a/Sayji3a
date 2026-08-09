@@ -18,7 +18,7 @@
 
 *"Don't worry... I don't bite."* ♡
 
-♡ Feel free to **C+H** or send me a friend request anytime.
+♡ free to **C+H**/add friend
 
 I'm a little shy around new people, so I don't usually make the first move... **Sorry!** 
 
