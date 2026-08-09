@@ -17,19 +17,21 @@
 ♡ I'm a very easygoing, friendly, and approachable person who loves meeting new people.
 
 *"Don't worry... I don't bite."* ♡
-<img src="./quality_restoration_20260810022213999.jpg" width="500">
-♡ free to **C+H**/add friend
+<img
+    src="./quality_restoration_20260810022213999.jpg" width="200">
 
-I'm a little shy around new people, so I don't usually make the first move... **Sorry!** 
+♡ free to **C+H**/add.
+
+I'm a little shy around new people, so I don't usually make the first move... **Sorry!** .
 
 ♡ Please don't make me the target of gossip, humiliation, or jokes meant to insult me.
-Please avoid challenge pranks, se×jokes (unless we're actually close
+Please avoid challenge pranks, se×jokes (unless we're actually close)
 
 ♡ Thank you! ♡
 <p align="center">
  <img src="./7af3d341fe2a8ad0399d23063b9ac6ee.gif" width="250">
 </p>
 </p>
-⋆｡‧˚ʚ♡ɞ˚‧｡⋆
+⋆｡‧˚ʚ♡ɞ˚‧ ｡⋆
 
 </div>
