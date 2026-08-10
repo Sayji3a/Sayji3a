@@ -22,7 +22,9 @@
 
 ♡ free to **C+H**/add.
 
-I'm a little shy around new people, so I don't usually make the first move... **Sorry!** . (´ε｀ )
+I'm a little shy around new people, so I don't usually make the first move... **Sorry!** . 
+
+💬
 
 ♡ Please don't make me the target of gossip, humiliation, or jokes meant to insult me.
 Please avoid challenge pranks, se×jokes (unless we're actually close)
