@@ -12,22 +12,7 @@
 
 ### 𝒞𝒶𝓀𝑒 ୨୧ 𝒮𝒶𝓎𝒿𝒾
 
-♡ Call me **Cake** or **Sayji**, or any nickname you know me by—as long as it's kind and respectful.
 
-♡ I'm a very easygoing, friendly, and approachable person who loves meeting new people.
-
-*"Don't worry... I don't bite."* ♡
-<img
-    src="./quality_restoration_20260810022213999.jpg" width="200">
-
-♡ free to **C+H**/add.
-
-I'm a little shy around new people, so I don't usually make the first move... **Sorry!** . 
-
-💬
-
-♡ Please don't make me the target of gossip, humiliation, or jokes meant to insult me.
-Please avoid challenge pranks, se×jokes (unless we're actually close)
 
 ♡ Thank you! ♡
 <p align="center">
